@@ -1,6 +1,7 @@
 - Jennifer Lawrence
-- Anne Hathaway
+- Anne With An E
 - Margot Robbie
 - Dylan O'brien
 - Evan Peters
-- 
+- Ryan Reynolds
+- Penn Badgley
