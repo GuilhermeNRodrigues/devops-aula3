@@ -3,4 +3,4 @@
 - Margot Robbie
 - Dylan O'brien
 - Evan Peters
-- 
+- Ryan Reynolds
