@@ -1,1 +1,6 @@
-# devops-aula3
+- Jennifer Lawrence
+- Anne Hathaway
+- Margot Robbie
+- Dylan O'brien
+- Evan Peters
+- 
